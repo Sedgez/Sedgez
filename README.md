@@ -7,6 +7,6 @@ and Dunk it!
 </p>
 I hope I make your day a little better with this photo 
 
-cheer!:D
+cheer! :D
 
 (photo not mine)
